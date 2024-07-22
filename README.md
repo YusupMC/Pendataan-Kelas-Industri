@@ -1,1 +1,1 @@
-# Pendataan-Kelas-Industri
+# Pendataan Kelas Industri
